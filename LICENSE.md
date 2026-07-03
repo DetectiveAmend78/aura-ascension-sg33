@@ -1,4 +1,4 @@
-# 
+# survive the apocalypse Scripts exclusive offers the most advanced survive the apocalypse Script, with undetectable and auto-collect. Perfect for
 
 
 
